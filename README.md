@@ -1,5 +1,5 @@
 ## Hi there 👋
-My name is Veepin kumar (HE/HIM):
+My name is Veepin Kumar (HE/HIM):
 
 💻I am passionate about AI and ML and I am a long-life learner.<br/><br/>
 🎨I love art in all its forms, but probably music and ESPORTS Games are my favourites.<br/><br/>
