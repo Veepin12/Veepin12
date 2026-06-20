@@ -2,8 +2,8 @@
 My name is Veepin Kumar (HE/HIM):
 
 💻I am passionate about AI and ML and I am a long-life learner.
-<br/>🎨I love art in all its forms, but probably music and ESPORTS Games are my favourites.<br/>
-🐟Water is my element: I love swimming, preferably in the sea - probably because I was born in a warm summer in a small town on the river-side in the Gorakhpur, East Uttar Pardesh in India .
+<br/>🎨I love Cricket in all its forms, but probably music and ESPORTS Games are my favourites.<br/>
+🐟Water is my element: I love swimming, preferably in the  river - probably because I was born in a warm summer in a small town on the river-side in the Gorakhpur, East Uttar Pardesh in India .
 
 
 
